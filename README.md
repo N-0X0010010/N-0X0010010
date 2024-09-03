@@ -1,5 +1,6 @@
 $${\color{pink}got} {\color{pink}money}　{\color{pink}got} {\color{pink}girls}　{\color{pink}get} {\color{pink}high}$$
-
+<p align="center">
+୨୧
 <p align="center">
   <img width="460" height="300" src="https://magma.com/shared/xvHIYtizf2bXewV5J2HumS">
 </p>
