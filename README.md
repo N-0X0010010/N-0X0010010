@@ -5,9 +5,8 @@ KEViN　╱　N　╱　CLOCK
 </h3>
 
 <p align="center">
-  <img width="390" height="27" src="https://64.media.tumblr.com/78c78571cc14db2747d8b19d745f7b73/08dd3dc800d19a06-1a/s400x600/7fb18aa7f98cd9b58f5573a14f6be79ec86f3efc.pnj">
+  <img width="50" height="50" src="https://magma.com/shared/nYZ4Ru-LZuD0vJz59AgY2S">
 </p>
-  
  
 <h5 align="center">
 
@@ -21,10 +20,13 @@ KEViN　╱　N　╱　CLOCK
 <p align="center">
   <img width="460" height="350" src="https://magma.com/shared/PCmawexm4OvZ1v9oGkcimi">
 </p>
-<h6 align="center">
-・・・
-  </h6>  
+
 <h5 align="center">
+
+<p align="center">
+  <img width="250" height="15" src="https://64.media.tumblr.com/78c78571cc14db2747d8b19d745f7b73/08dd3dc800d19a06-1a/s400x600/7fb18aa7f98cd9b58f5573a14f6be79ec86f3efc.pnj">
+</p>
+　
 
 ❝　**come back home to me, be my baby boy ♡**　❞‎
 
