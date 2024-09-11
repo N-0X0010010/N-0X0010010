@@ -1,6 +1,6 @@
 <h5 align="center">
 
-❝　**how was the view from the shelf?**　❞‎
+❝　**all i want is another chance to be adventurous all day with you**　❞‎
 
 </h5>  
 
@@ -8,14 +8,14 @@
 ( ᵔ⩊ᵔ )
   </h6>  
 <p align="center">
-  <img width="460" height="300" src="https://i.pinimg.com/736x/04/d1/61/04d161ca6ed405f6f044b8a306221563.jpg">
+  <img width="460" height="350" src="https://magma.com/shared/PCmawexm4OvZ1v9oGkcimi">
 </p>
 <h6 align="center">
 ・・・
   </h6>  
 <h5 align="center">
 
-❝　**did you ever believe in yourself?**　❞‎
+❝　**come back home to me, be my baby boy ♡**　❞‎
 
 </h5>  
 
