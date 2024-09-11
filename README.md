@@ -18,7 +18,7 @@ KEViN　╱　N　╱　CLOCK
 ( ᵔ⩊ᵔ )
   </h6>  
 <p align="center">
-  <img width="460" height="350" src="https://magma.com/shared/PCmawexm4OvZ1v9oGkcimi">
+  <img width="460" height="355" src="https://magma.com/shared/CWtm4c1Xgrrc4WXpwojJOy">
 </p>
 
 <h5 align="center">
