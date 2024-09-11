@@ -21,7 +21,7 @@
 
 <h6 align="center">
 
-‎‎☆◜ [rentry](https://rentry.co/brokenbook)　.　[strwpge](https://0x0010010.straw.page) ◝☆
+‎‎☆◜ [rentry](https://rentry.co/brokenbook)　.　[kin strwpge](https://mereveal.straw.page) ◝☆
 </h6> 
 
 <!---
