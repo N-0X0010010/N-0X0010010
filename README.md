@@ -15,7 +15,7 @@ KEViN　╱　4S
 </h5>  
 
 <h6 align="center">
-( ᵔ⩊ᵔ )
+. . .
   </h6>  
 <p align="center">
   <img width="470" height="280" src="https://i.pinimg.com/564x/d6/39/46/d63946314472fb4a52fc496affb33edb.jpg">
@@ -24,7 +24,7 @@ KEViN　╱　4S
 <h5 align="center">
 
 <p align="center">
-  <img width="250" height="15" src="https://64.media.tumblr.com/78c78571cc14db2747d8b19d745f7b73/08dd3dc800d19a06-1a/s400x600/7fb18aa7f98cd9b58f5573a14f6be79ec86f3efc.pnj">
+  <img width="210" height="50" src="https://64.media.tumblr.com/163c305c9b8bcaa7dd0b8a08e831a652/1a03627f8a62a116-fa/s250x400/554c298dc3373f4536cb00d987dade864cda51f1.pnj">
 </p>
 　
 
