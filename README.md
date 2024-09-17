@@ -10,7 +10,7 @@ KEViN　╱　4S
  
 <h5 align="center">
 
-❝　**ones and zeros, true or false?**　❞‎
+❝　**do I know who i pretend to be? of whom am i a copy?**　❞‎
 
 </h5>  
 
@@ -21,20 +21,29 @@ KEViN　╱　4S
   <img width="470" height="280" src="https://i.pinimg.com/564x/d6/39/46/d63946314472fb4a52fc496affb33edb.jpg">
 </p>
 
+
+
+<h6 align="center">
+. . .
+  </h6> 
 <h5 align="center">
 
-<p align="center">
-  <img width="210" height="50" src="https://64.media.tumblr.com/163c305c9b8bcaa7dd0b8a08e831a652/1a03627f8a62a116-fa/s250x400/554c298dc3373f4536cb00d987dade864cda51f1.pnj">
+❝　**yes it made me who i am, but i'll never understand why it had to happen to me.**　❞‎
 </p>
-　
+ 
+<h5 align="center">
 
-❝　**reset system to default .**　❞‎
 
-</h5>  
+<p align="center">
+  <img width="30" height="30" src="https://wilardo.crd.co/assets/images/gallery02/69ea6416.gif?v=618e2dfe">
+</p>
+
+
+
 
 <h6 align="center">
 
-‎‎☆◜ [rentry](https://rentry.co/brokenbook)　.　[kin strwpge](https://mereveal.straw.page) ◝☆
+‎‎☆ ◜ [rentry](https://rentry.co/brokenbook)　.　[kin strwpge](https://mereveal.straw.page) ◝ ☆
 </h6> 
 
 <!---
