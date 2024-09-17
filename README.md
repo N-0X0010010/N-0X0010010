@@ -1,16 +1,16 @@
 <h3 align="center">
 
-KEViN　╱　N　╱　CLOCK
+KEViN　╱　4S
 
 </h3>
 
 <p align="center">
-  <img width="50" height="50" src="https://magma.com/shared/nYZ4Ru-LZuD0vJz59AgY2S">
+  <img width="70" height="70" src="https://static.wikia.nocookie.net/inanimateinsanity/images/c/ca/MePhoneEvil.png/revision/latest/scale-to-width-down/1000?cb=20111101211655">
 </p>
  
 <h5 align="center">
 
-❝　**all i want is another chance to be adventurous all day with you**　❞‎
+❝　**ones and zeros, true or false?**　❞‎
 
 </h5>  
 
@@ -18,7 +18,7 @@ KEViN　╱　N　╱　CLOCK
 ( ᵔ⩊ᵔ )
   </h6>  
 <p align="center">
-  <img width="460" height="355" src="https://magma.com/shared/CWtm4c1Xgrrc4WXpwojJOy">
+  <img width="470" height="280" src="https://i.pinimg.com/564x/d6/39/46/d63946314472fb4a52fc496affb33edb.jpg">
 </p>
 
 <h5 align="center">
@@ -28,7 +28,7 @@ KEViN　╱　N　╱　CLOCK
 </p>
 　
 
-❝　**come back home to me, be my baby boy ♡**　❞‎
+❝　**reset system to default .**　❞‎
 
 </h5>  
 
