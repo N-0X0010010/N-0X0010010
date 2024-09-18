@@ -10,7 +10,7 @@ KEViN　╱　4S
  
 <h5 align="center">
 
-❝　**do I know who i pretend to be? of whom am i a copy?**　❞‎
+❝　**i hope ya know i pack a chainsaw, ill skin your ass raw.**　❞‎
 
 </h5>  
 
@@ -28,7 +28,7 @@ KEViN　╱　4S
   </h6> 
 <h5 align="center">
 
-❝　**yes it made me who i am, but i'll never understand why it had to happen to me.**　❞‎
+❝　**and if my day keeps goin this way, i just might break somethin tonight ..**　❞‎
 </p>
  
 <h5 align="center">
