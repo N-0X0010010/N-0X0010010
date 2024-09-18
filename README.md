@@ -43,7 +43,7 @@ KEViN　╱　4S
 
 <h6 align="center">
 
-‎‎☆ ◜ [rentry](https://rentry.co/brokenbook)　.　[kin strwpge](https://mereveal.straw.page) ◝ ☆
+‎‎☆ ◜ [rentry](https://rentry.co/brokenbook)　.　[ata](https://clock.atabook.org) ◝ ☆
 </h6> 
 
 <!---
