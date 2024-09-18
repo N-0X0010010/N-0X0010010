@@ -43,7 +43,7 @@ KEViN　╱　4S
 
 <h6 align="center">
 
-‎‎☆ ◜ [sharedrentry](https://rentry.co/ticklepickle)　.　[atabook](https://clock.atabook.org) ◝ ☆
+‎‎☆ ◜ [sharedrentry](https://rentry.co/ticklepickle)　.　[atabook](https://mephone.atabook.org) ◝ ☆
 </h6> 
 
 <!---
