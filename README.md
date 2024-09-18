@@ -43,7 +43,7 @@ KEViN　╱　4S
 
 <h6 align="center">
 
-‎‎☆ ◜ [rentry](https://rentry.co/brokenbook)　.　[ata](https://clock.atabook.org) ◝ ☆
+‎‎☆ ◜ [straw](https://circuits.straw.page)　.　[ata](https://clock.atabook.org) ◝ ☆
 </h6> 
 
 <!---
