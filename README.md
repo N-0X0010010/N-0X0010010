@@ -10,25 +10,18 @@ KEViN　╱　4S
  
 <h5 align="center">
 
-❝　**i hope ya know i pack a chainsaw, ill skin your ass raw.**　❞‎
+❝　**you lie in bed at night and watch the lines of headlights through your screen ..**　❞‎
 
 </h5>  
 
 <h6 align="center">
 . . .
-  </h6>  
-<p align="center">
-  <img width="470" height="280" src="https://i.pinimg.com/564x/d6/39/46/d63946314472fb4a52fc496affb33edb.jpg">
-</p>
-
-
-
-<h6 align="center">
-. . .
   </h6> 
+<p align="center">
+  <img width="470" height="350" src="https://magma.com/shared/keJm8Gwqhqt5G2Sq3-VO5S">
 <h5 align="center">
 
-❝　**and if my day keeps goin this way, i just might break somethin tonight ..**　❞‎
+❝　**there is a child inside you who is trying to raise the child in me ..**　❞‎
 </p>
  
 <h5 align="center">
@@ -43,7 +36,7 @@ KEViN　╱　4S
 
 <h6 align="center">
 
-‎‎☆ ◜ [sharedrentry](https://rentry.co/ticklepickle)　.　[atabook](https://mephone.atabook.org) ◝ ☆
+‎‎☆ ◜ [shared](https://rentry.co/ticklepickle)　.　[atabook](https://mephone.atabook.org) ◝ ☆
 </h6> 
 
 <!---
