@@ -1,13 +1,18 @@
+<h5 align="center">
+
+![](https://komarev.com/ghpvc/?username=N-0X0010010&label=GOOBERS!!&color=ffcb1b)
+
+</p>
+ 
 <h3 align="center">
 
-KEViN　╱　4S
+KEViN　╱　4S　╱　N
 
 </h3>
 
 <p align="center">
-  <img width="70" height="70" src="https://static.wikia.nocookie.net/inanimateinsanity/images/c/ca/MePhoneEvil.png/revision/latest/scale-to-width-down/1000?cb=20111101211655">
+  <img width="20" height="20" src="https://cdn.discordapp.com/emojis/1123739701648564385.gif?size=96&quality=lossless">
 </p>
- 
 <h5 align="center">
 
 ❝　**you lie in bed at night and watch the lines of headlights through your screen ..**　❞‎
@@ -18,7 +23,7 @@ KEViN　╱　4S
 . . .
   </h6> 
 <p align="center">
-  <img width="470" height="350" src="https://magma.com/shared/keJm8Gwqhqt5G2Sq3-VO5S">
+  <img width="500" height="450" src="https://static.wikia.nocookie.net/d75ad35f-72e2-47f6-af4d-4c87c0df80f1">
 <h5 align="center">
 
 ❝　**there is a child inside you who is trying to raise the child in me ..**　❞‎
@@ -28,7 +33,7 @@ KEViN　╱　4S
 
 
 <p align="center">
-  <img width="30" height="30" src="https://wilardo.crd.co/assets/images/gallery02/69ea6416.gif?v=618e2dfe">
+  <img width="40" height="40" src="https://cdn.discordapp.com/emojis/1225950927723171953.gif?size=96&quality=lossless">
 </p>
 
 
