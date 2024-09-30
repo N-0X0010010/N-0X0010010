@@ -15,7 +15,7 @@ KEViN　╱　4S　╱　N
 </p>
 <h5 align="center">
 
-❝　**you lie in bed at night and watch the lines of headlights through your screen ..**　❞‎
+❝　**.. and then, one good day when we live in the same city**　❞‎
 
 </h5>  
 
@@ -26,7 +26,7 @@ KEViN　╱　4S　╱　N
   <img width="500" height="450" src="https://static.wikia.nocookie.net/d75ad35f-72e2-47f6-af4d-4c87c0df80f1">
 <h5 align="center">
 
-❝　**there is a child inside you who is trying to raise the child in me ..**　❞‎
+❝　**i'll come by and tell you that you look insanely pretty!! ..**　❞‎
 </p>
  
 <h5 align="center">
