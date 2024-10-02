@@ -41,7 +41,7 @@ KEViN　╱　4S　╱　N
 
 <h6 align="center">
 
-‎‎☆ ◜ [shared](https://rentry.co/ticklepickle)　.　[atabook](https://mephone.atabook.org) ◝ ☆
+‎‎☆ ◜ [shared](https://rentry.co/ticklepickle)　.　[notes](https://rentry.co/freakyjournal) ◝ ☆
 </h6> 
 
 <!---
