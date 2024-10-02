@@ -1,6 +1,6 @@
 <h5 align="center">
 
-![](https://komarev.com/ghpvc/?username=N-0X0010010&label=GOOBERS!!&color=b6e62d)
+![](https://komarev.com/ghpvc/?username=N-0X0010010&label=GOOBERS!!&color=daf35d)
 
 </p>
  
