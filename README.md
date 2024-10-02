@@ -1,6 +1,6 @@
 <h5 align="center">
 
-![](https://komarev.com/ghpvc/?username=N-0X0010010&label=GOOBERS!!&color=ffcb1b)
+![](https://komarev.com/ghpvc/?username=N-0X0010010&label=GOOBERS!!&color=49a4b1)
 
 </p>
  
@@ -11,11 +11,11 @@ KEViN　╱　4S　╱　N
 </h3>
 
 <p align="center">
-  <img width="20" height="20" src="https://cdn.discordapp.com/emojis/1123739701648564385.gif?size=96&quality=lossless">
+  <img width="25" height="25" src="https://cdn.discordapp.com/emojis/978084708032315402.webp?size=96&quality=lossless">
 </p>
 <h5 align="center">
 
-❝　**.. and then, one good day when we live in the same city**　❞‎
+❝　**.. but i used to talk to my mother about how i just couldn't wait to get old**　❞‎
 
 </h5>  
 
@@ -23,17 +23,17 @@ KEViN　╱　4S　╱　N
 . . .
   </h6> 
 <p align="center">
-  <img width="500" height="450" src="https://static.wikia.nocookie.net/d75ad35f-72e2-47f6-af4d-4c87c0df80f1">
+  <img width="500" height="450" src="https://magma.com/shared/MGb9rmXOyn683e8G20FinC">
 <h5 align="center">
 
-❝　**i'll come by and tell you that you look insanely pretty!! ..**　❞‎
+❝　**and it's all coming back to me now ..**　❞‎
 </p>
  
 <h5 align="center">
 
 
 <p align="center">
-  <img width="40" height="40" src="https://cdn.discordapp.com/emojis/1225950927723171953.gif?size=96&quality=lossless">
+  <img width="40" height="40" src="https://cdn.discordapp.com/emojis/1183453176511344682.webp?size=96&quality=lossless">
 </p>
 
 
