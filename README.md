@@ -23,7 +23,7 @@ KEViN　╱　4S　╱　N
 . . .
   </h6> 
 <p align="center">
-  <img width="500" height="450" src="https://magma.com/shared/MGb9rmXOyn683e8G20FinC">
+  <img width="500" height="450" src="https://magma.com/shared/mmH3Zv4HauDCzKJLKW-7LS">
 <h5 align="center">
 
 ❝　**and it's all coming back to me now ..**　❞‎
